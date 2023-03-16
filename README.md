@@ -1,0 +1,1 @@
+# Data-for-the-response-of-wildfire-regimes-to-Last-Glacial-Maximum-carbon-dioxide-and-climate
